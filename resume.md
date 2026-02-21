@@ -1,6 +1,6 @@
-# Résumé
+# Resume
 
-## Nathi Phakathi  
+## Nkosinathi Phakathi  
 IT Professional | Automation & Cybersecurity Focus  
 
 ### Education
